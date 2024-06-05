@@ -1,21 +1,21 @@
 # Potential-winner
 https://www.lawinsider.com/dictionary/potential-winners
  Potential Winners in a sentence
-Potential Winners may be required to provide Sponsor with proof that he/she is the authorized account holder of the e-mail address associated with the winning Entry.
+# Potential Winners may be required to provide Sponsor with proof that he/she is the authorized account holder of the e-mail address associated with the winning Entry.
 
-Potential Winners will be notified by email on or about two (2) business days after the applicable drawing date.
+# Potential Winners will be notified by email on or about two (2) business days after the applicable drawing date.
 
-Potential Winners who are eligible for the award of a prize assume all liability for the use of the prize.
+# Potential Winners who are eligible for the award of a prize assume all liability for the use of the prize.
 
-Potential Winners shall have no right to any prize unless the conditions set forth in these and any other applicable rules are satisfied.
+# Potential Winners shall have no right to any prize unless the conditions set forth in these and any other applicable rules are satisfied.
 
-Potential Winners are subject to verification by Administrator and must execute an Affidavit of Eligibility/Liability/Publicity Release and W-9 within three (3) business days from the date of emailing the Affidavit to potential Winner.
+# Potential Winners are subject to verification by Administrator and must execute an Affidavit of Eligibility/Liability/Publicity Release and W-9 within three (3) business days from the date of emailing the Affidavit to potential Winner.
 
-Potential Winners must comply with these Official Rules and winning is contingent upon fulfilling all requirements.
+# Potential Winners must comply with these Official Rules and winning is contingent upon fulfilling all requirements.
 
-Potential Winner(s) will be contacted via email within seven (7) days from selection.
+# Potential Winner(s) will be contacted via email within seven (7) days from selection.
 
-Potential Winners will be notified at the telephone number from which he or she texted the entry, or submitted in his or her online entry (as applicable), within seventy-two (72) business hours of being selected.
+# Potential Winners will be notified at the telephone number from which he or she texted the entry, or submitted in his or her online entry (as applicable), within seventy-two (72) business hours of being selected.
 
 Verification of Potential Winners: ALL POTENTIAL WINNERS ARE SUBJECT TO VERIFICATION BY SPONSOR, WHOSE DECISIONS ARE FINAL AND BINDING IN ALL MATTERS RELATED TO THE SWEEPSTAKES.
 
